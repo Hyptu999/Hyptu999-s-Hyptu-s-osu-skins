@@ -1,2 +1,2 @@
-# Hyptu999-s-Hyptu-s-osu-skins
+# Hyptu999 or Hyptu osu-skins
 These are the skins used by Hyptu in osu!
